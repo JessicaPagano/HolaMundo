@@ -11,3 +11,5 @@ Soy de signo :pisces:
 Amo el :coffee:, es mi bebida favorita.
 
 tomo mucho ☕ 
+
+NO ESTOY ENTENDIENDO 😿
